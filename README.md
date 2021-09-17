@@ -1,0 +1,1 @@
+# 3d-lgs-matematik-soru-bankasi-2022-32
